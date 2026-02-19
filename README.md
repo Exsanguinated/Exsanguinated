@@ -19,17 +19,15 @@
   
 - Anyone under the age of 18; we don't enjoy talking to or being near minors who sneak onto the 18+ server. Go back to PG.
 
-- Anyone who yumeships with real people. Stop being so parasocial and get some help, please. 
-
 - Anyone who indulges in or thinks that loli or shota is acceptable and gives the excuse that they aren't real people so it doesn't have a sway on actual reality. we refuse to sit and argue about this bullet point; we have our reasonings and would rather you hide us than even try to talk about this topic.
 
 - Anyone who is Racist, Homophobic, Transphobic, Ableist, An Ace / Aro denier or just generally bigoted in their personal beliefs. We prefer to only befriend people who are open-minded and don't like people who foster hate for others based on their own identity.
 
-- "Endogenic" supporters / believers who think that dissociative disorders can be present in someone who hasn't experienced any trauma.
-
 - Anyone who wants to try to preach religion on this hellscape of a site. We don't hate on any sort of religion and are very accepting, however, we have no interest in having ANY religion shoved down our throat. If you want to do that, go do that somewhere else.
 
 - If you think jokes about rape are funny or make jokes about threatening to touch people. You are genuinely gross and it's really uncomfortable; stay the hell away from us if you do.
+
+- "Endogenic" supporters / believers who think that dissociative disorders can be present in someone who hasn't experienced any trauma or those who romanticize mental disorders in general. This disorder sucks and we only have our status openly listed so people can be mindful of it when interacting with us; it isn't fun or quirky.
 
 
 <p align="center"> <img src="https://files.catbox.moe/pct622.png" />
