@@ -19,8 +19,6 @@
 
 -  We often struggle with reaching out first and apologize in advance; our anxiety genuinely gets so overwhelming at times that the solution is to just shut down.
 
--  We often struggle with tones through text and it can lead to misunderstandings; if anything can come across as offensive or targetted, please tag it with tone tags to avoid confusion!
-
 -  There are times where we will be blurry and not have a firm grasp on anything; we ask that you be patient and refrain from being too hard on us if we struggle to respond in chat.
 
 <p align="center"> <img src="https://files.catbox.moe/pct622.png" />
@@ -39,8 +37,6 @@
 - Anyone who indulges in or thinks that loli or shota is acceptable and gives the excuse that they aren't real people so it doesn't have a sway on actual reality. we refuse to sit and argue about this bullet point; we have our reasonings and would rather you hide us than even try to talk about this topic.
 
 - Anyone who is Racist, Homophobic, Transphobic, Ableist, An Ace / Aro denier or just generally bigoted in their personal beliefs. We prefer to only befriend people who are open-minded and don't like people who foster hate for others based on their own identity.
-
-- Anyone who wants to try to preach religion on this hellscape of a site. We don't hate on any sort of religion and are very accepting, however, we have no interest in having ANY religion shoved down our throat. If you want to do that, go do that somewhere else.
 
 - If you think jokes about rape are funny or make jokes about threatening to touch people. You are genuinely gross and it's really uncomfortable; stay the hell away from us if you do.
 
