@@ -47,5 +47,4 @@
 
 <p align="center"> <img src="https://files.catbox.moe/pct622.png" />
 
-<p align="center"> <img src="https://autism.crd.co/assets/images/gallery03/2f574b4d.gif?v=d6547f5c" />
 
