@@ -3,12 +3,29 @@
 <p align="center"> <img src="https://gifs.crd.co/assets/images/gallery09/9cced0ce.gif?v=ef433a6f" />
 
 
-<p align="center"> We are The Coven Collective; a diagnosed 18+ system. We have been playing PonyTown since 2018. We won't give out our rentry to anyone from here anymore due to safety reasons and having had it used by individuals to try to stalk us or manipulate us. Get to actually know us through conversation; not a website. We often end up AFKing or just being on to people watch and sit with our partner system or our friends. Feel free to interact freely with anyone so long as you listen to the below DNI criteria list for our own personal comfort. We apologize if we don't remember interactions, names or the like given the memory issues that come with a dissociative disorder and may need reminders of things from time to time if we end up interacting more than once or twice. A final note is please refrain from copying or taking inspiration from ANY of our  skins! These are all very personal to those who's skins they are and should be treated with the respect of acknowledging such. 
+<p align="center"> We are The Coven Collective; a diagnosed 18+ system. We have been playing PonyTown since 2018. We won't give out our rentry to anyone from here anymore due to safety reasons and having had it used by individuals to try to stalk us or manipulate us. Get to actually know us through conversation; not a website. We often end up AFKing or just being on to people watch and sit with our partner system or our friends. Feel free to interact freely with anyone so long as you listen to DNI criteria list for our own personal comfort. We apologize if we don't remember interactions, names or the like given the memory issues that come with a dissociative disorder and may need reminders of things from time to time if we end up interacting more than once or twice. A final note is please refrain from copying or taking inspiration from ANY of our  skins! These are all very personal to those who's skins they are and should be treated with the respect of acknowledging such. 
 
 
 <p align="center"> <img src="https://files.catbox.moe/pct622.png" />
 
-<p align="center"> 《 DNI if you fall under any of the below: 》
+<p align="center"> 《 BYI: 》
+<p align="center">
+  <img src="https://files.catbox.moe/x3dsyy.gif" />
+</p>
+
+-  We use weed medicinally for chronic pain and usually play games or ponytown while high; if this bothers you for some reason, don't bother engaging.
+
+-  Please don't vent to us if we aren't already close or haven't offered to let you vent! It's genuinely stressful and tiring and will end up with you being temp-muted.
+
+-  We often struggle with reaching out first and apologize in advance; our anxiety genuinely gets so overwhelming at times that the solution is to just shut down.
+
+-  We often struggle with tones through text and it can lead to misunderstandings; if anything can come across as offensive or targetted, please tag it with tone tags to avoid confusion!
+
+-  There are times where we will be blurry and not have a firm grasp on anything; we ask that you be patient and refrain from being too hard on us if we struggle to respond in chat.
+
+<p align="center"> <img src="https://files.catbox.moe/pct622.png" />
+  
+<p align="center"> 《 DNI: 》
 <p align="center">
   <img src="https://files.catbox.moe/x3dsyy.gif" />
 </p>
