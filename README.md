@@ -27,7 +27,7 @@
   <img src="https://files.catbox.moe/x3dsyy.gif" />
 </p>
 
-- Proshippers / Darkshippers; you know what we mean by this being here and won't waste the time to argue about it. Get help.
+- Proshippers / Darkshippers; you know what we mean by this being here and won't waste the time to argue about it. 
   
 - If you plan on being weird to any of our fictives; fictives aren't their source, even if they have "source memories" or similar behaviors.
   
