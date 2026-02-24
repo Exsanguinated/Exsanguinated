@@ -1,12 +1,5 @@
-<p align="center"> 『 For those from PonyTown: 』
-
 <p align="center"> <img src="https://gifs.crd.co/assets/images/gallery09/9cced0ce.gif?v=ef433a6f" />
 
-
-<p align="center"> We are The Coven Collective; a diagnosed 18+ system. We have been playing PonyTown since 2018 and often end up AFKing or just being on to people watch and sit with our partner system or friends. Please refrain from copying or taking inspiration from ANY of our  skins! These are all very personal to us if they have the SYS tag in their name and going out of your way to copy skins in general is just a jerk thing to do.
-
-
-<p align="center"> <img src="https://files.catbox.moe/pct622.png" />
 
 <p align="center"> 《 BYI: 》
 <p align="center">
@@ -24,6 +17,8 @@
 -  Feel free to ask to cuddle or hide with us if wanted and the response will depend on the current fronter(s), PLEASE do be respectful though and don't make a scene if you are declined.
 
 -  We apologize in advance if we don't remember interactions, names or the like given the memory issues that come with a dissociative disorder and may need reminders of things from time to time if we end up interacting more than once or twice.
+
+- Please refrain from copying or taking inspiration from ANY of our skins! These are all very personal to us if they have the SYS tag in their name and going out of your way to copy skins in general is just a jerk thing to do.
 
 <p align="center"> <img src="https://files.catbox.moe/pct622.png" />
   
@@ -47,6 +42,6 @@
 - "Endogenic" supporters / believers who think that dissociative disorders can be present in someone who hasn't experienced any trauma or those who romanticize mental disorders in general. This disorder sucks and we only have our status openly listed so people can be mindful of it when interacting with us; it isn't fun or quirky.
 
 
-<p align="center"> <img src="https://files.catbox.moe/pct622.png" />
+<p align="center"> <img src="https://gifs.crd.co/assets/images/gallery09/9cced0ce.gif?v=ef433a6f" />
 
 
