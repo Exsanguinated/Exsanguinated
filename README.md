@@ -3,7 +3,7 @@
 <p align="center"> <img src="https://gifs.crd.co/assets/images/gallery09/9cced0ce.gif?v=ef433a6f" />
 
 
-<p align="center"> We are The Coven Collective; a diagnosed 18+ system. We have been playing PonyTown since 2018 and often end up AFKing or just being on to people watch and sit with our partner system or friends. Feel free to interact freely with anyone so long as you listen to DNI criteria list for our own personal comfort. We apologize if we don't remember interactions, names or the like given the memory issues that come with a dissociative disorder and may need reminders of things from time to time if we end up interacting more than once or twice. A final note is please refrain from copying or taking inspiration from ANY of our  skins! These are all very personal to those who's skins they are and should be treated with the respect of acknowledging such. 
+<p align="center"> We are The Coven Collective; a diagnosed 18+ system. We have been playing PonyTown since 2018 and often end up AFKing or just being on to people watch and sit with our partner system or friends. Please refrain from copying or taking inspiration from ANY of our  skins! These are all very personal to us if they have the SYS tag in their name and going out of your way to copy skins in general is just a jerk thing to do.
 
 
 <p align="center"> <img src="https://files.catbox.moe/pct622.png" />
@@ -21,7 +21,9 @@
 
 -  There are times where we will be blurry and not have a firm grasp on anything; we ask that you be patient and refrain from being too hard on us if we struggle to respond in chat.
 
--  Feel free to ask to cuddle or hide with us if wanted and the response will depend on the current fronter(s), PLEASE do be respectful though and don't make a scene if you are declined. 
+-  Feel free to ask to cuddle or hide with us if wanted and the response will depend on the current fronter(s), PLEASE do be respectful though and don't make a scene if you are declined.
+
+-  We apologize in advance if we don't remember interactions, names or the like given the memory issues that come with a dissociative disorder and may need reminders of things from time to time if we end up interacting more than once or twice.
 
 <p align="center"> <img src="https://files.catbox.moe/pct622.png" />
   
