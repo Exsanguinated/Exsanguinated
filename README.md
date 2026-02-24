@@ -21,6 +21,8 @@
 
 -  There are times where we will be blurry and not have a firm grasp on anything; we ask that you be patient and refrain from being too hard on us if we struggle to respond in chat.
 
+-  Feel free to ask to cuddle or hide with us if wanted and the response will depend on the current fronter(s), PLEASE do be respectful though and don't make a scene if you are declined. 
+
 <p align="center"> <img src="https://files.catbox.moe/pct622.png" />
   
 <p align="center"> 《 DNI: 》
@@ -44,8 +46,6 @@
 
 
 <p align="center"> <img src="https://files.catbox.moe/pct622.png" />
-
-<p align="Center"> Do feel free to talk with us or ask to sit with us if you feel inclined. Depending on fronter, we may be ok with cuddling or allowing you to hide behind us on PonyTown, just make sure to ask if you're going to do so first! We look forward to interacting with you and thank you for being respectful of our boundaries for who we are willing to hang out with and taking time to read them.
 
 <p align="center"> <img src="https://autism.crd.co/assets/images/gallery03/2f574b4d.gif?v=d6547f5c" />
 
