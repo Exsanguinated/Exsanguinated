@@ -39,7 +39,7 @@
 
 - Anyone who is Racist, Homophobic, Transphobic, Ableist, An Ace / Aro denier or just generally bigoted in their personal beliefs. We prefer to only befriend people who are open-minded and don't like people who foster hate for others based on their own identity.
 
-- If you think jokes about rape are funny or make jokes about threatening to touch people. You are genuinely gross and it's really uncomfortable; stay the hell away from us if you do.
+- If you think jokes about r*pe are funny or make jokes about threatening to touch people. You are genuinely gross and it's really uncomfortable; stay the hell away from us if you do.
 
 - "Endogenic" supporters / believers who think that dissociative disorders can be present in someone who hasn't experienced any trauma or those who romanticize mental disorders in general. This disorder sucks and we only have our status openly listed so people can be mindful of it when interacting with us; it isn't fun or quirky.
 
