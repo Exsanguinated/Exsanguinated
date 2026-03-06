@@ -16,6 +16,8 @@
 
 -  Feel free to ask to cuddle or hide with us if wanted and the response will depend on the current fronter(s), PLEASE do be respectful though and don't make a scene if you are declined.
 
+-  Please don't ask for us to party up with you just because of our supporter perks; it makes some of us uncomfortable, especially if we just met you.
+
 -  We apologize in advance if we don't remember interactions, names or the like given the memory issues that come with a dissociative disorder and may need reminders of things from time to time if we end up interacting more than once or twice.
 
 - Please refrain from copying or taking inspiration from ANY of our skins! These are all very personal to us if they have the SYS tag in their name and going out of your way to copy skins in general is just a jerk thing to do.
