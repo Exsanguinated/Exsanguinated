@@ -37,7 +37,7 @@
 
 - Anyone who indulges in or thinks that loli or shota is acceptable and gives the excuse that they aren't real people so it doesn't have a sway on actual reality. This includes the "but she's 10 thousand years old and just has the body and mind of a child!" arguement havers, we refuse to sit and debate this bullet point; we have our personal reasonings and would rather you hide us than even try to talk to us. 
 
-- Anyone who is Racist, Homophobic, Transphobic, Ableist, An Ace / Aro denier or just generally bigoted in their personal beliefs. We prefer to only befriend people who are open-minded and don't like people who foster hate for others based on their own identity.
+- Anyone who is Racist, Homophobic, Transphobic, Ableist, An Asexual / Aromantic denier, A MAGA supporter or just generally bigoted in their personal beliefs. We prefer to only befriend / talk people who are open-minded and don't like people who foster hate for others based on their own identity. This includes poor attempts at hiding your actual ideals under the guise of "jokes" or "trolling" to try to excuse it and downplay being genuine about their convictions.
 
 - If you think jokes about r*pe are funny or make jokes about threatening to touch people. Furthermore; if you are a sex pest in general, especially to people you don't even know. This unfortunately **had** to be added because some people at docks indulge in being degenerates 24/7 on this game. You are genuinely gross and it's really uncomfortable; stay the hell away from us if you do any of that stuff.
 
