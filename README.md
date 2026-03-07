@@ -20,7 +20,7 @@
 
 -  We apologize in advance if we don't remember interactions, names or the like given the memory issues that come with a dissociative disorder and may need reminders of things from time to time if we end up interacting more than once or twice.
 
-- Please refrain from copying or taking inspiration from ANY of our skins! These are all very personal to us if they have the SYS tag in their name and going out of your way to copy skins in general is just a jerk thing to do.
+- Please refrain from copying or taking inspiration from ANY of our skins! These are all very personal to us if they have the SYS tag in their name and going out of your way to copy skins in general is just a jerk thing to do. If we suspect you are even **attempting** to take from any of our skins; you will be hidden, sorry in advance if it ends up being a misunderstanding! We genuinely get anxious about it ever since it's happened before on this site and would rather not take any chances!
 
 <p align="center"> <img src="https://files.catbox.moe/pct622.png" />
   
@@ -31,7 +31,7 @@
 
 - Proshippers / Darkshippers; you know what we mean by this being here and won't waste the time to argue about it. 
   
-- If you plan on being weird to any of our fictives; fictives aren't their source, even if they have "source memories" or similar behaviors.
+- If you plan on being weird to **any** of our fictives; **fictives aren't their source**, even if they have any "source memories" or similar behaviors.
   
 - Anyone under the age of 18; we don't enjoy talking to or being near minors who sneak onto the 18+ server. Go back to PG.
 
@@ -39,7 +39,7 @@
 
 - Anyone who is Racist, Homophobic, Transphobic, Ableist, An Ace / Aro denier or just generally bigoted in their personal beliefs. We prefer to only befriend people who are open-minded and don't like people who foster hate for others based on their own identity.
 
-- If you think jokes about r*pe are funny or make jokes about threatening to touch people. You are genuinely gross and it's really uncomfortable; stay the hell away from us if you do.
+- If you think jokes about r*pe are funny or make jokes about threatening to touch people. Furthermore; if you are a sex pest in general, especially to people you don't even know. This unfortunately **had** to be added because of people at docks being degenerates. You are genuinely gross and it's really uncomfortable; stay the hell away from us if you do any of that stuff.
 
 - "Endogenic" supporters / believers who think that dissociative disorders can be present in someone who hasn't experienced any trauma or those who romanticize mental disorders in general. This disorder sucks and we only have our status openly listed so people can be mindful of it when interacting with us; it isn't fun or quirky.
 
