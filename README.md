@@ -22,7 +22,7 @@
 
 - Please refrain from copying or taking inspiration from ANY of our skins! These are all very personal to us if they have the SYS tag in their name and going out of your way to copy skins in general is just a jerk thing to do. If we suspect you are even **attempting** to take from any of our skins; you will be hidden, sorry in advance if it ends up being a misunderstanding! We genuinely get anxious about it ever since it's happened before on this site and would rather not take any chances, especially with how shitty some of the player base can be towards others.
 
-<p align="center"> <img src="https://files.catbox.moe/pct622.png" />
+<p align="center"> <img src="https://gifs.crd.co/assets/images/gallery09/9cced0ce.gif?v=ef433a6f" />
   
 <p align="center"> 《 DNI: 》
 <p align="center">
