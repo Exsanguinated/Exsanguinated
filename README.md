@@ -33,7 +33,7 @@
 
 - Proshippers / Darkshippers; you know what we mean by this being here and won't waste the time to argue about it. 
   
-- If you plan on being weird to **any** of our fictives; **fictives aren't their source**, even if they have any "source memories" or similar behaviors.
+- If you plan on being weird to **any** of our fictives; **fictives aren't their source**, even if they have any "source memories" or similar behaviors. This includes people who run up to try to roleplay with any of them; it's genuinely super awkward and uncomfortable for everyone involved.
   
 - Anyone under the age of 18; we don't enjoy talking to or being near minors who sneak onto the 18+ server. Go back to PG.
 
@@ -42,9 +42,6 @@
 - Anyone who is Racist, Homophobic, Transphobic, Ableist, An Asexual / Aromantic denier, A MAGA supporter or just generally bigoted in their personal beliefs. We prefer to only befriend / talk people who are open-minded and don't like people who foster hate for others based on their own identity. This includes poor attempts at people hiding their actual ideals under the guise of "jokes" or "trolling" to try to excuse it and downplay being genuine about their convictions.
 
 - If you think jokes about r*pe are funny or make jokes about threatening to touch people. Furthermore; if you are a sex pest in general, especially to people you don't even know. This unfortunately **had** to be added because some people at docks indulge in being degenerates 24/7 on this game. You are genuinely gross and it's really uncomfortable; stay the hell away from us if you do any of that stuff.
-
-- "Endogenic" supporters / believers who think that dissociative disorders can be present in someone who hasn't experienced any trauma or those who romanticize mental disorders in general. This disorder sucks and we only have our status openly listed so people can be mindful of it when interacting with us; it isn't fun or quirky.
-
 
 <p align="center"> <img src="https://gifs.crd.co/assets/images/gallery09/9cced0ce.gif?v=ef433a6f" />
 
