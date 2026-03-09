@@ -5,7 +5,7 @@
 <p align="center">
   <img src="https://files.catbox.moe/x3dsyy.gif" />
 </p>
-
+  
 -  We use weed medicinally for chronic pain and usually play games or ponytown while high; if this bothers you for some reason, don't bother engaging.
 
 -  Please don't vent to us if we aren't already close or haven't offered to let you vent! It's genuinely stressful and tiring and will end up with you being temp-muted.
@@ -28,6 +28,8 @@
 <p align="center">
   <img src="https://files.catbox.moe/x3dsyy.gif" />
 </p>
+
+- Anyone who thinks it's funny to go around fake claiming. We are **medically diagnosed** and even then still struggle with the self doubt cycle loop. It isn't funny to make it worse on us for the fact we aren't going to pry open medical files and hand over sensitive personal information to you for you to take us seriously.
 
 - Proshippers / Darkshippers; you know what we mean by this being here and won't waste the time to argue about it. 
   
