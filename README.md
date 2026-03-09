@@ -29,7 +29,7 @@
   <img src="https://files.catbox.moe/x3dsyy.gif" />
 </p>
 
-- Anyone who thinks it's funny to go around fake claiming. We are **medically diagnosed** and even then still struggle with the self doubt cycle loop. It isn't funny to make it worse on us for the fact we aren't going to pry open medical files and hand over sensitive personal information to you for you to take us seriously.
+- Anyone who thinks it's funny to go around fake claiming. We are **medically diagnosed** and even then still struggle with the self doubt cycle loop. It isn't funny to make it worse on us for the fact we aren't going to pry open medical files and hand over sensitive personal information to you for you to take us seriously when we saw specialists for years to have our system confirmed on paper.
 
 - Proshippers / Darkshippers; you know what we mean by this being here and won't waste the time to argue about it. 
   
