@@ -2,8 +2,7 @@
 
 
 <p align="center"> 《 BYI: 》
-<p align="center">
-  <img src="https://files.catbox.moe/x3dsyy.gif" />
+<p align="center"> <img src="https://files.catbox.moe/9x6iuh.gif" />
 </p>
   
 -  We use weed medicinally for chronic pain and usually play games or ponytown while high; if this bothers you for some reason, don't bother engaging.
@@ -26,7 +25,7 @@
   
 <p align="center"> 《 DNI: 》
 <p align="center">
-  <img src="https://files.catbox.moe/x3dsyy.gif" />
+  <img src="https://files.catbox.moe/9x6iuh.gif" />
 </p>
 
 - Anyone who thinks it's funny to go around fake claiming. We are **medically diagnosed** and even then still struggle with the self doubt cycle loop. It isn't funny to make it worse on us for the fact we aren't going to pry open medical files and hand over sensitive personal information to you for you to take us seriously when we saw specialists for years to have our system confirmed on paper.
