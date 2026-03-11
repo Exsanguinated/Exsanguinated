@@ -7,9 +7,7 @@
   
 -  We use weed medicinally for chronic pain and usually play games or ponytown while high; if this bothers you for some reason, don't bother engaging.
 
--  Please don't vent to us if we aren't already close or haven't offered to let you vent! It's genuinely stressful and tiring and will end up with you being temp-muted.
-
--  We often struggle with reaching out first and apologize in advance; our anxiety genuinely gets so overwhelming at times that the solution is to just shut down.
+-  Please don't vent to us randomly if we aren't already close or haven't offered to let you vent! It's genuinely stressful and tiring and will end up with you being temp-muted.
 
 -  **There are times where we will be blurry and not have a firm grasp on anything**; we ask that you be patient and refrain from being too hard on us if we struggle to respond in chat.
 
