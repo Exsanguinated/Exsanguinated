@@ -38,6 +38,8 @@
 
 - Anyone who is Racist, Homophobic, Transphobic, Ableist, An Asexual / Aromantic denier, A MAGA supporter or just generally bigoted in their personal beliefs. We prefer to only befriend / talk people who are open-minded and don't like people who foster hate for others based on their own identity. This includes poor attempts at people hiding their actual ideals under the guise of "jokes" or "trolling" to try to excuse it and downplay being genuine about their convictions.
 
+- If you are pro-endo / pro-willo; dissociative disorders are the product of childhood TRAUMA, not by the sheer fact of wanting something as emotionally, mentally and psychologically debilitating as being a system. Literally just hide us if you think trauma isn't required to be one, deadass.
+
 - If you think jokes about r*pe are funny or make jokes about threatening to touch people. Furthermore; if you are a sex pest in general, especially to people you don't even know. This unfortunately **had** to be added because some people at docks indulge in being degenerates 24/7 on this game. You are genuinely gross and it's really uncomfortable; stay the hell away from us if you do any of that stuff.
 
 <p align="center"> <img src="https://gifs.crd.co/assets/images/gallery09/9cced0ce.gif?v=ef433a6f" />
