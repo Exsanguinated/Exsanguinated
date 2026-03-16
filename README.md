@@ -30,7 +30,7 @@
 
 - Proshippers / Darkshippers; you know what we mean by this being here and won't waste the time to argue about it. 
   
-- If you plan on being weird to **any** of our fictives; **fictives aren't their source**, even if they have any "source memories" or similar behaviors. This includes people who run up to try to roleplay with any of them; it's genuinely super awkward and uncomfortable for everyone involved.
+- If you plan on being weird to **any** of our introjects; **they aren't their source**, even if they have any source (pseudo) memories or similar behaviors. This includes people who run up to try to roleplay with any of us; it's genuinely super awkward and uncomfortable for everyone involved.
   
 - Anyone under the age of 18; we don't enjoy talking to or being near minors who sneak onto the 18+ server. Go back to PG.
 
