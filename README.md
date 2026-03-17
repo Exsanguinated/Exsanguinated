@@ -1,6 +1,6 @@
 
 
-<h3><p align="center"> 《 BYI : 》
+<h4><p align="center"> 《 BYI : 》
 
   <h6>
 • We use weed medicinally for chronic pain and usually play games or ponytown while high; if this bothers you for some reason, don't bother engaging.
@@ -17,9 +17,9 @@
 
 <h6> •  Please refrain from copying or taking inspiration from ANY of our skins! These are all very personal to us if they have the SYS tag in their name and going out of your way to copy skins in general is just a jerk thing to do. If we suspect you are even **attempting** to take from any of our skins; you will be hidden, sorry in advance if it ends up being a misunderstanding! We genuinely get anxious about it ever since it's happened before on this site and would rather not take any chances, especially with how shitty some of the player base can be towards others.
 
-<p align="center"> <img src="https://gifs.crd.co/assets/images/gallery09/9cced0ce.gif?v=ef433a6f" />
+
   
-<h3><p align="center"> 《 DNI : 》
+<h4><p align="center"> 《 DNI : 》
 
 <h6> •  Anyone who thinks it's funny to go around fake claiming. We are **medically diagnosed** and even then still struggle with the self doubt cycle loop. It isn't funny to make it worse on us for the fact we aren't going to pry open medical files and hand over sensitive personal information to you for you to take us seriously when we saw specialists for years to have our system confirmed on paper.
 
