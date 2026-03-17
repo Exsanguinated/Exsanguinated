@@ -2,14 +2,13 @@
 
 
 <h3><p align="center"> 《 BYI : 》
-<p align="center"> <img src="https://files.catbox.moe/9x6iuh.gif" />
-</p>
+
   <h6>
 • We use weed medicinally for chronic pain and usually play games or ponytown while high; if this bothers you for some reason, don't bother engaging.
 
 <h6> •  Please don't vent to us randomly if we aren't already close or haven't offered to let you vent! It's genuinely stressful and tiring and will end up with you being temp-muted.
 
-<h6> •  **There are times where we will be blurry and not have a firm grasp on anything**; we ask that you be patient and refrain from being too hard on us if we struggle to respond in chat.
+<h6> •  There are times where we will be blurry and not have a firm grasp on anything; we ask that you be patient and refrain from being too hard on us if we struggle to respond in chat.
 
 <h6> •   Feel free to ask to cuddle or hide with us if wanted and the response will depend on the current fronter(s), PLEASE do be respectful though and don't make a scene if you are declined.
 
@@ -22,9 +21,6 @@
 <p align="center"> <img src="https://gifs.crd.co/assets/images/gallery09/9cced0ce.gif?v=ef433a6f" />
   
 <h3><p align="center"> 《 DNI : 》
-<p align="center">
-  <img src="https://files.catbox.moe/9x6iuh.gif" />
-</p>
 
 <h6> •  Anyone who thinks it's funny to go around fake claiming. We are **medically diagnosed** and even then still struggle with the self doubt cycle loop. It isn't funny to make it worse on us for the fact we aren't going to pry open medical files and hand over sensitive personal information to you for you to take us seriously when we saw specialists for years to have our system confirmed on paper.
 
