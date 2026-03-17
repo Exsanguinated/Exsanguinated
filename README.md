@@ -1,4 +1,3 @@
-<p align="center"> <img src="https://gifs.crd.co/assets/images/gallery09/9cced0ce.gif?v=ef433a6f" />
 
 
 <h3><p align="center"> 《 BYI : 》
@@ -38,6 +37,6 @@
 
 <h6> • If you think jokes about r*pe are funny or make jokes about threatening to touch people. Furthermore; if you are a sex pest in general, especially to people you don't even know. This unfortunately **had** to be added because some people at docks indulge in being degenerates 24/7 on this game. You are genuinely gross and it's really uncomfortable; stay the hell away from us if you do any of that stuff.
 
-<p align="center"> <img src="https://gifs.crd.co/assets/images/gallery09/9cced0ce.gif?v=ef433a6f" />
+
 
 
