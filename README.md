@@ -23,7 +23,9 @@
 
 <h6> •  Anyone who thinks it's funny to go around fake claiming. We are *medically diagnosed* and even then still struggle with the self doubt cycle loop. It isn't funny to make it worse on us for the fact we aren't going to pry open medical files and hand over sensitive personal information to you for you to take us seriously when we saw specialists for years to have our system confirmed on paper.
 
-<h6> •  Proshippers / Darkshippers; you know what we mean by this being here and won't waste the time to argue about it. 
+<h6> •  Proshippers / Darkshippers; you know what we mean by this being here and won't waste the time to argue about it.  
+
+<h6> • If you yumeship / selfship with a real life person and / or ship real people in general. That's seriously weird; get help with you being so parasocial. /gen
   
 <h6> •  If you plan on being weird to any of our introjects; they aren't their "source", even if they have any source (pseudo) memories or similar behaviors. This includes people who run up to try to roleplay with any of us; it's genuinely super awkward and uncomfortable for everyone involved.
   
