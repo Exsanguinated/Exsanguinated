@@ -15,7 +15,7 @@
 
 <h6> •  We apologize in advance if we don't remember interactions, names or the like given the memory issues that come with a dissociative disorder and may need reminders of things from time to time if we end up interacting more than once or twice.
 
-<h6> •  Please refrain from copying or taking inspiration from ANY of our skins! These are all very personal to us if they have the SYS tag in their name and going out of your way to copy skins in general is just a jerk thing to do. If we suspect you are even attempting to take from any of our skins; you will be hidden, sorry in advance if it ends up being a misunderstanding! We genuinely get anxious about it ever since it's happened before on this site and would rather not take any chances, especially with how shitty some of the player base can be towards others.
+<h6> •  Please refrain from copying or taking inspiration from ANY of our skins! These are all very personal to us and going out of your way to copy skins in general is just an asshole thing to do. If we suspect you are even attempting to take from anything from our skins; you will be hidden. We're sorry in advance if it ends up being a misunderstanding but we genuinely get anxious about it ever since it's happened before on this hellscape site and would rather not take any chances, especially with how shitty some of the player base can be towards others.
 
 
   
