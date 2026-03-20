@@ -1,6 +1,6 @@
 
 
-<h4><p align="center"> ──《 Before you interact 》──
+<h4><p align="center"> ──《 Before You Interact 》──
 
   <h6>
 • We use weed medicinally for chronic pain and usually play games or ponytown while high; if this bothers you for some reason, don't bother engaging.
