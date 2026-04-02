@@ -2,14 +2,9 @@
 
 <h4><p align="center"> ──《 Before You Interact 》──
 
-  <h6>
-• We use weed medicinally for chronic pain and usually play games or ponytown while high; if this bothers you for some reason, don't bother engaging.
-
 <h6> •  Please don't vent to us randomly if we aren't already close or haven't offered to let you vent! It's genuinely stressful and tiring and will end up with you being temp-muted.
 
 <h6> •  There are times where we will be blurry and not have a firm grasp on anything; we ask that you be patient and refrain from being too hard on us if we struggle to respond in chat.
-
-<h6> •   Feel free to ask to cuddle or hide with us if wanted and the response will depend on the current fronter(s), PLEASE do be respectful though and don't make a scene if you are declined.
 
 <h6> •  Please don't ask for us to party up with you just because of our supporter perks; it makes some of us uncomfortable, especially if we just met you.
 
