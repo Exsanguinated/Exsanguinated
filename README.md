@@ -24,7 +24,7 @@
 
 <h6> •  Anyone who indulges in or thinks that loli or shota is acceptable and gives the excuse that they aren't real people so it doesn't have a sway on actual reality. We refuse to sit and debate this bullet point with you. 
 
-<h6> •  Anyone who is Racist, Homophobic, Transphobic, Ableist, An Asexual / Aromantic denier, A MAGA supporter or just generally bigoted in their personal beliefs.
+<h6> •  Anyone who is Racist, Homophobic, Transphobic, Ableist, An Asexual / Aromantic denier, A zionist, MAGA or just generally bigoted in their personal beliefs.
 
 <h6> •  If you are pro-endo / pro-willo; dissociative disorders are the product of childhood TRAUMA, not by the sheer fact of wanting something as emotionally, mentally and psychologically debilitating as being a system. Literally just hide us if you think trauma isn't required to be one, deadass.
 
