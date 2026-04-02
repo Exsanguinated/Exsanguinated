@@ -41,4 +41,6 @@
 
 
 
-
+![Divider Image](https://files.catbox.moe/x3dsyy.gif)
+![Profile view counter](https://komarev.com/ghpvc/?username=Exsanguinated&style=flat-square) 
+![Divider Image](https://files.catbox.moe/x3dsyy.gif)
