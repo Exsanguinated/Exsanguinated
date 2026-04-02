@@ -28,7 +28,7 @@
 
 <h6> •  If you are pro-endo / pro-willo; dissociative disorders are the product of childhood trauma. Save us both time and just hide us if you disagree.
 
-<h6> • If you think jokes about r*pe are funny or make jokes about threatening to touch people. Furthermore; if you are a sex pest in general, especially to people you don't even know. You are genuinely gross and it's really uncomfortable; stay the hell away from us if you do any of that stuff.
+<h6> • If you think jokes about r*pe are funny or make jokes about threatening to touch people. Furthermore; if you are a sex pest in general. You are genuinely gross and it's really uncomfortable; stay the hell away from us if you do any of that stuff.
 
 
 <br><br>
