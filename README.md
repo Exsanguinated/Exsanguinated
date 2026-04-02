@@ -1,4 +1,4 @@
-
+![Divider Image](https://files.catbox.moe/5hkrb2.png)
 
 <h4><p align="center"> ──《 Before You Interact 》──
 
