@@ -33,7 +33,6 @@
 
 <h6> • If you make jokes about r*pe or find jokes about r*pe funny, are a sex pest towards others or make jokes about threatening to touch people. Genuinely stay the hell away from us; there is a difference between crude humor banter and being an outright creep.
 
-
-<br><br><p align="center"> ![Profile view counter](https://komarev.com/ghpvc/?username=Exsanguinated&style=flat-square) </P>
-
-
+<br><br><p align="center">
+  <img src="https://64.media.tumblr.com/99226829cade174d81801f866edf1c44/7d31adfa26e18217-cd/s500x750/de4b39abb60738caebe22066a30313641c292a46.gifv"/>
+</p>
