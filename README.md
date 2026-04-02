@@ -27,7 +27,7 @@
 
 <h6> •  Anyone who indulges in loli / shota or incest content in any capacity. We refuse to sit and debate this bullet point with you. You're gross. 
 
-<h6> •  Anyone who is Racist, Homophobic, Misogynistic, Transphobic, Ableist, Zionistic, MAGA or just generally bigoted in their personal beliefs. 
+<h6> •  Anyone who is Racist, Homophobic, Misogynistic, Transphobic, Ableist, Zionistic, MAGA, ICE supporters or just generally bigoted in their personal beliefs. 
 
 <h6> •  If you are pro-endogenic or regularly try to engage in "syscourse" for the sake of it; go ahead and save us both time and just hide us before even trying to bother interacting.
 
