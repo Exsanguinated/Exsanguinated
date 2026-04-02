@@ -1,4 +1,4 @@
-![Divider Image](https://files.catbox.moe/2640jg.png)
+![Divider Image](https://files.catbox.moe/63hwlb.png)
 
 <h4><p align="center"> ──《 Before You Interact 》──
 
@@ -32,7 +32,7 @@
 
 <h6> • If you make jokes about r*pe or find jokes about r*pe funny, are a sex pest towards others or make jokes about threatening to touch people. Genuinely stay the hell away from us; there is a difference between crude humor banter and being an outright creep.
 
-  <br><br>
-![Divider Image](https://files.catbox.moe/2640jg.png)
 
 <br><br><p align="center"> ![Profile view counter](https://komarev.com/ghpvc/?username=Exsanguinated&style=flat-square) </P>
+
+![Divider Image](https://files.catbox.moe/ywa68b.png)
