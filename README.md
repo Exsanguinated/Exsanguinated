@@ -10,25 +10,25 @@
 
 <h6> •  We apologize in advance if we don't remember interactions, names or the like given the memory issues that come with a dissociative disorder and may need reminders of things from time to time if we end up interacting more than once or twice.
 
-<h6> •  Please refrain from copying or taking inspiration from ANY of our skins! If we suspect you are even attempting to take from anything from our skins; you will be hidden. We're sorry in advance if it ends up being a misunderstanding but we genuinely get anxious about it ever since it's happened before on this hellscape site and would rather not take any chances, especially with how shitty some of the player base can be towards others.
+<h6> •  Refrain from copying or taking inspiration from any of our skins! If we suspect you are even attempting to take anything from our skins; you will be hidden. We're sorry in advance if it ends up being a misunderstanding; we genuinely get anxious about it ever since it's happened before on this hellscape site and would rather not take any chances, especially with how shitty some of the player base can be towards others.
 
 
   
 <h4><p align="center"> ──《 Do Not Interact 》──
 
-<h6> •  Anyone who thinks it's funny to go around fake claiming. We are medically diagnosed and we aren't going to pry open medical files and hand over sensitive information to you for you to take us seriously when we saw specialists for years to have our system confirmed on paper.
+<h6> •  Anyone who thinks it's funny to go around fake claiming others. We are medically diagnosed and we aren't going to pry open medical files and hand over sensitive information to you for you to take us seriously when we saw specialists for years to have our system confirmed on paper.
 
 <h6> •  Proshippers / Darkshippers; you know what we mean by this being here and won't waste the time to argue about it.  
 
 <h6> •  If you plan on being weird to any of us. This especially includes people who run up to try to roleplay or befriend us based on our introjects; it's genuinely super awkward and uncomfortable for everyone involved.
   
-<h6> •  Anyone under the age of 18; we don't enjoy talking to or being near minors who sneak onto the 18+ server. Go back to PG.
+<h6> •  Anyone under the age of 18; we don't enjoy talking to or being near minors who sneak onto the 18+ server. Go back to Safe Server where you belong.
 
 <h6> •  Anyone who indulges in or thinks that loli or shota is acceptable and gives the excuse that they aren't real people so it doesn't have a sway on actual reality. We refuse to sit and debate this bullet point with you. 
 
 <h6> •  Anyone who is Racist, Homophobic, Misogynistic, Transphobic, Ableist, Zionistic, MAGA or just generally bigoted in their personal beliefs. 
 
-<h6> •  If you are pro-endo / pro-willo; dissociative disorders are the product of childhood trauma. Save us both time and just hide us if you disagree.
+<h6> •  If you are pro-endogenic or regularly try to engage in "syscourse" for the sake of it; go ahead and save us both time and just hide us before even trying to bother interacting.
 
 <h6> • If you think jokes about r*pe are funny or make jokes about threatening to touch people. Furthermore; if you are a sex pest in general. You are genuinely gross and it's really uncomfortable; stay the hell away from us if you do any of that stuff.
 
