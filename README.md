@@ -26,7 +26,7 @@
 
 <h6> •  Anyone who is Racist, Homophobic, Transphobic, Ableist, An Asexual / Aromantic denier, A zionist, MAGA or just generally bigoted in their personal beliefs.
 
-<h6> •  If you are pro-endo / pro-willo; dissociative disorders are the product of childhood TRAUMA, not by the sheer fact of wanting something as emotionally, mentally and psychologically debilitating as being a system. Literally just hide us if you think trauma isn't required to be one, deadass.
+<h6> •  If you are pro-endo / pro-willo; dissociative disorders are the product of childhood TRAUMA. Literally just hide us if you disagree.
 
 <h6> • If you think jokes about r*pe are funny or make jokes about threatening to touch people. Furthermore; if you are a sex pest in general, especially to people you don't even know. You are genuinely gross and it's really uncomfortable; stay the hell away from us if you do any of that stuff.
 
