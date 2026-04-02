@@ -1,5 +1,6 @@
-![Divider Image](https://files.catbox.moe/63hwlb.png)
-
+<p align="center">
+  <img src="https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gifv"/>
+</p>
 <h4><p align="center"> ──《 Before You Interact 》──
 
 <h6> • We use weed for chronic pain management as it's the only thing that cuts through the pain for us that we can get our hands on; if you have an issue with that, don't interact. 
@@ -35,4 +36,4 @@
 
 <br><br><p align="center"> ![Profile view counter](https://komarev.com/ghpvc/?username=Exsanguinated&style=flat-square) </P>
 
-![Divider Image](https://files.catbox.moe/ywa68b.png)
+
