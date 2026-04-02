@@ -2,6 +2,8 @@
 
 <h4><p align="center"> ──《 Before You Interact 》──
 
+<h6> • We use weed for chronic pain management as it's the only thing that cuts through the pain for us that we can get our hands on; if you have an issue with that, don't interact. 
+  
 <h6> •  Please don't vent to us randomly if we aren't already close or haven't offered to let you vent! It's genuinely stressful and tiring and will end up with you being temp-muted.
 
 <h6> •  There are times where we will be blurry and not have a firm grasp on anything; we ask that you be patient and refrain from being too hard on us if we struggle to respond in chat.
@@ -18,7 +20,7 @@
 
 <h6> •  Proshippers / Darkshippers; you know what we mean by this being here and won't waste the time to argue about it.  
 
-<h6> •  If you plan on being weird to any of us. This especially includes people who run up to try to roleplay; it's genuinely super awkward and uncomfortable for everyone involved.
+<h6> •  If you plan on being weird to any of us. This especially includes people who run up to try to roleplay or befriend us based on our introjects; it's genuinely super awkward and uncomfortable for everyone involved.
   
 <h6> •  Anyone under the age of 18; we don't enjoy talking to or being near minors who sneak onto the 18+ server. Go back to PG.
 
