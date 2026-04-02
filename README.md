@@ -18,7 +18,7 @@
 
 <h6> •  Proshippers / Darkshippers; you know what we mean by this being here and won't waste the time to argue about it.  
 
-<h6> •  If you plan on being weird to any of us. This especially includes people who run up to try to roleplay with any of us; it's genuinely super awkward and uncomfortable for everyone involved.
+<h6> •  If you plan on being weird to any of us. This especially includes people who run up to try to roleplay; it's genuinely super awkward and uncomfortable for everyone involved.
   
 <h6> •  Anyone under the age of 18; we don't enjoy talking to or being near minors who sneak onto the 18+ server. Go back to PG.
 
