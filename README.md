@@ -3,7 +3,7 @@
 </p>
 <h4><p align="center"> ──《 Before You Interact 》──
 
-<h6> • We use weed for chronic pain management as it's the only thing that cuts through the pain for us that we can get our hands on; if you have an issue with that, don't interact. 
+<h6> • We use weed for chronic pain management as it's the only thing that cuts through the pain for us that we can get our hands on; we aren't always high when on this site, but if you have an issue with us using weed medicinally, don't even interact. 
   
 <h6> •  Please don't vent to us randomly if we aren't already close or haven't offered to let you vent! It's genuinely stressful and tiring and will end up with you being temp-muted.
 
