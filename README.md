@@ -11,7 +11,7 @@
 
 <h6> •  We apologize in advance if we don't remember interactions, names or the like given the memory issues we suffer with and may need reminders of things from time to time if we end up interacting more than once or twice.
 
-<h6> •  Refrain from copying or taking inspiration from any of our skins! If we suspect you are even attempting to take anything from our skins; you will be hidden. We're sorry in advance if it ends up being a misunderstanding; we genuinely get anxious about it ever since it's happened before on this hellscape site and would rather not take any chances, especially with how shitty some of the player base can be towards others.
+<h6> •  Refrain from copying or taking inspiration from any of our skins! If we suspect you are even attempting to take anything from our skins; you will be hidden. We're sorry in advance if it ends up being a misunderstanding; on this hellscape site we would rather not take any chances, especially with how shitty some of the player base can be.
 
 
   
