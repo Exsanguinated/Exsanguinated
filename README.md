@@ -1,7 +1,7 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gifv"/>
 </p>
-<h4><p align="center"> ──《 Before You Interact 》──
+<h5><p align="center"> ──《 Before You Interact 》──
 
 <h6> • We use weed for chronic pain management as it's the only thing that cuts through the pain for us; however, we aren't always high when on PonyTown. That said, if you have an issue with us using weed medicinally, don't interact / try to shame us for not having proper medical access to pain meds.
   
@@ -13,7 +13,7 @@
 
 
   
-<h4><p align="center"> ──《 Do Not Interact 》──
+<h5><p align="center"> ──《 Do Not Interact 》──
 
 <h6> •  Anyone who thinks it's funny to go around fake claiming others. We are medically diagnosed and we aren't going to pry open medical files and hand over sensitive information to you for you to take us seriously when we saw specialists for years to have our system confirmed on paper.
 
