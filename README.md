@@ -3,7 +3,7 @@
 </p>
 <h5><p align="center"> ──《 Before You Interact 》──
 
-<h6> • We use weed for chronic pain management as it's the only thing that cuts through the pain for us; however, we aren't always high when on PonyTown. Just a heads up that there might be times when we are!
+<h6> • We use weed for chronic pain management as it's the only thing that cuts through the pain for us; however, we aren't aALWAYS high when on PonyTown. This needed to be stated because there are times we will be and do know some have issues with usage of it or would prefer to know.
   
 <h6> •  There are times where we will be blurry and not have a firm grasp on anything; we ask that you be patient and refrain from being too hard on us if we struggle to respond in chat.
 
