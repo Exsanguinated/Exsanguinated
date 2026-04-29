@@ -33,7 +33,7 @@
 
 <h6> •  If you are pro-endogenic or regularly try to engage in "syscourse" for the sake of it; go ahead and save us both time and just hide us before even trying to bother interacting.
 
-<h6> • If you make jokes about r*pe or find jokes about r*pe funny, are a sex pest towards others or make jokes about threatening to touch people. Genuinely stay the hell away from us.
+<h6> • If you make jokes about r*pe or find jokes about r*pe funny, are a sex pest towards others or make jokes about threatening to touch people. Same applies for jokes about genocide, school shootings and The Epstein Files. Genuinely stay the hell away from us.
 
   <br><br>
 <p align="center">
