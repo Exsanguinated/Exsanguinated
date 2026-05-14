@@ -11,7 +11,7 @@
 
 <h6> •  We would appreciate if you refrain from flirting with any of us, even if it's done as a joke; we have a lovely partner system and it makes us highly uncomfortable!
   
-<h6> •  Refrain from copying or taking inspiration from any of our skins! If we suspect you are even attempting to take anything from our skins; you will be hidden. We're sorry in advance if it ends up being a misunderstanding.
+<h6> • We choose to utilize the block button and hide freely. That's what the block button is for afterall.
 <br><br>
 <p align="center">
   <img src="https://64.media.tumblr.com/b0f6399b50feed01834417dae9c15e10/49833ea7a3e178f3-17/s1280x1920/fbf9b0e8c64d3c3ca85fd7f5083994dd9cad5dda.gifv"/>
