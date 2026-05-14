@@ -31,8 +31,6 @@
 
 <h6> •  Anyone who is Racist, Homophobic, Misogynistic, Transphobic, Ableist, Zionistic, MAGA, Supports ICE, Supports AI slop or is just generally bigoted in their personal beliefs. 
 
-<h6> •  If you are pro-endogenic or regularly try to engage in "syscourse" for the sake of it; go ahead and save us both time and just hide us before even trying to bother interacting.
-
 <h6> • If you make jokes about r*pe / sa or make jokes about threatening to touch people. The same applies for jokes about genocide, shootings, abuse, deportation and the Epstein files. Read the room about how tone-deaf ALL of these are these days and stay the hell away from us. Thanks.
 
   <br><br>
