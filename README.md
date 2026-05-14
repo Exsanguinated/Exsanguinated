@@ -27,7 +27,7 @@
   
 <h6> •  Anyone under the age of 18; we don't enjoy talking to or being near minors who sneak onto the 18+ server. Go back to Safe Server where you belong.
 
-<h6> •  Anyone who indulges in any sort of incest, loli or shota content in any capacity. We refuse to sit and debate this bullet point with you. You're gross. 
+<h6> •  Anyone who indulges in any sort of zoo, incest, loli or shota content in any capacity. We refuse to sit and debate this bullet point with you. You're gross.  
 
 <h6> •  Anyone who is Racist, Homophobic, Misogynistic, Transphobic, Ableist, Zionistic, MAGA, Supports ICE, Supports AI slop or is just generally bigoted in their personal beliefs. 
 
