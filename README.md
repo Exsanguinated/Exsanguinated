@@ -2,8 +2,6 @@
   <img src="https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gifv"/>
 </p>
 <h5><p align="center"> ──《 Before You Interact 》──
-
-<h6> • We use weed for chronic pain management as it's the only thing that cuts through the pain for us; however, we aren't always high when we are on PonyTown. This needed to be stated as there are times we will be and do know some have issues with usage of it or would prefer to know.
   
 <h6> •  There are times where we will be blurry and not have a firm grasp on anything; we ask that you be patient if we struggle to respond in chat.
 
