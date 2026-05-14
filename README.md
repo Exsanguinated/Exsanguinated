@@ -5,11 +5,11 @@
 
 <h6> • We use weed for chronic pain management as it's the only thing that cuts through the pain for us; however, we aren't always high when we are on PonyTown. This needed to be stated as there are times we will be and do know some have issues with usage of it or would prefer to know.
   
-<h6> •  There are times where we will be blurry and not have a firm grasp on anything; we ask that you be patient and refrain from being too hard on us if we struggle to respond in chat.
+<h6> •  There are times where we will be blurry and not have a firm grasp on anything; we ask that you be patient if we struggle to respond in chat.
 
 <h6> •  We apologize in advance if we don't remember interactions, names or the like given the memory issues we suffer with and may need reminders of things from time to time if we end up interacting more than once or twice.
 
-<h6> •  We would appreciate if you refrain from flirting with any of us, even if it's done as a joke; we have a lovely partner system and it makes us highly uncomfortable!
+<h6> •  Refrain from flirting with any of us, even if it's done as a joke; we have a lovely partner system and it makes us highly uncomfortable.
   
 <h6> • We choose to utilize the block button and curate our online experience by hiding freely. That's what the block button is for afterall.
 <br><br>
