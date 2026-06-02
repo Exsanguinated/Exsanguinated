@@ -1,7 +1,7 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/aebeb8f7521ee6fb0557995080ffab1f/2a25a5e1abd64440-ff/s640x960/39cc5c3ceda82c534732f66b123d37db300ad960.gifv"/>
 </p>
-<h5><p align="center"> ──《 Before You Interact 》──
+<h5><p align="center"> ⫘⫘⫘⫘⫘⫘ 《 Before You Interact 》 ⫘⫘⫘⫘⫘⫘
   
 <h6> •  There are times where we will be blurry and not have a firm grasp on anything; we ask that you be patient if we struggle to respond in chat.
 
@@ -15,7 +15,7 @@
   <img src="https://64.media.tumblr.com/b0f6399b50feed01834417dae9c15e10/49833ea7a3e178f3-17/s1280x1920/fbf9b0e8c64d3c3ca85fd7f5083994dd9cad5dda.gifv"/>
 </p>
   
-<h5><p align="center"> ──《 Do Not Interact 》──
+<h5><p align="center"> ⫘⫘⫘⫘⫘⫘《 Do Not Interact 》⫘⫘⫘⫘⫘⫘
 
 <h6> •  "Fakeclaimers". We are medically diagnosed and aren't going to pry open files and hand over sensitive information to you for you to take us seriously; we saw specialists for years to have our system confirmed on paper.
 
