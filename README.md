@@ -19,7 +19,7 @@
 
 <h6> •  The infamous r/fakedisordercringe type of people. We are medically diagnosed and aren't going to pry open files and hand over sensitive information to you for you to take us seriously; we saw specialists for years to have our system confirmed on our medical records. Sincerely, fuck off if you feel entitled to "proof" to take us seriously. 
 
-<h6> •  If you plan on being weird to any of us. This especially includes people who run up to try to roleplay or befriend us based on our introjects; it's genuinely super awkward and uncomfortable for everyone involved. Introject =/= your favorite blorbo from their 'source' at all. We are just trying to exist.
+<h6> •  If you plan on being weird to us. This especially includes people who run up to try to roleplay or befriend us based on our introjects. It's super awkward and uncomfortable for everyone involved. Introject =/= your favorite blorbo from their 'source' even if they seem similar.
 
   <h6> •  Anyone who is Racist, Homophobic, Misogynistic, Transphobic, Ableist, Zionistic, MAGA, Supports ICE, Supports AI slop or is just generally bigoted in their personal beliefs. 
     
