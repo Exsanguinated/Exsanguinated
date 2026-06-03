@@ -17,7 +17,7 @@
   
 <h5><p align="center"> ⫘⫘⫘⫘⫘⫘《 Do Not Interact 》⫘⫘⫘⫘⫘⫘
 
-<h6> •  "Fakeclaimers". We are medically diagnosed and aren't going to pry open files and hand over sensitive information to you for you to take us seriously; we saw specialists for years to have our system confirmed on paper.
+<h6> •  "Fakeclaimers", AKA: R/fakedisordercringe type of people. We are medically diagnosed and aren't going to pry open files and hand over sensitive information to you for you to take us seriously; we saw specialists for years to have our system confirmed on our medical records. Fuck off. <3
 
 <h6> •  Proship / Profict / Darkship; you know what we mean by this being here and won't waste the time to argue about it.  
 
