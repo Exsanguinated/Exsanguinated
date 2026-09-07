@@ -38,6 +38,6 @@
 </p>
 
 <br><br> ★ᯓ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ◁
-![](https://komarev.com/ghpvc/?username=Exsanguinated&color=lightgrey&style=flat-square&label=Total+Spectators:)
+![](https://komarev.com/ghpvc/?username=Exsanguinated&color=lightgrey&style=flat-square&label=Lost+Souls:)
 ▷ ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ ᯓ★
 
