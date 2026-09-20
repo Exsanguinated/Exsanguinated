@@ -5,11 +5,11 @@
   
 <h6> •  There are times where we will be blurry and not have a firm grasp on anything; we ask that you be patient if we struggle to respond in chat.
 
+<h6> • We usually deal with anxiety during social interactions, leading some of us here to be very hesitant to interact first. That said, if currently on-tab, we will still respond to chat or whispers and slowly open up more if you want to interact!
+  
 <h6> •  We apologize in advance if we don't remember interactions, names or the like given the memory issues we suffer with and may need reminders of things from time to time if we end up interacting more than once or twice.
 
 <h6> •  Refrain from flirting with any of us, even if it's done as a joke; we have a lovely partner system and it makes us highly uncomfortable.
-
-<h6> • We usually deal with anxiety during social interactions, leading some of us here to be very hesitant to interact first. That said, if currently on-tab, we will still respond to chat or whispers and slowly open up more if you want to interact!
   
 <h6> • We choose to utilize the block button and curate our online experience by hiding freely. That's what the block button is for afterall.
 <br><br>
