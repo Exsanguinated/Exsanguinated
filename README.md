@@ -23,7 +23,7 @@
 
 <h6> •  If you plan on being weird to us. This especially includes people who run up to try to roleplay or befriend us based on our introjects. It's super awkward and uncomfortable for everyone involved. Introject =/= your favorite blorbo from their 'source' , even if they seem similar.
 
-  <h6> •  Anyone who is Racist, Homophobic, Misogynistic, Transphobic, Ableist, Zionistic, MAGA, Supports ICE, Supports AI slop or is just generally bigoted in their personal beliefs. 
+  <h6> •  Anyone who is Racist, Homophobic, Misogynistic, Transphobic, Ableist, Zionistic, MAGA, A TERF, Supports ICE, Supports AI slop or is just generally bigoted in their personal beliefs. 
     
 <h6> •  Proship / Profict / Darkship; you know what we mean by this being here and won't waste the time to argue about it.  
 
