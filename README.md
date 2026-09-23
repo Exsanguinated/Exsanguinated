@@ -25,7 +25,7 @@
 
   <h6> •  Anyone who is Racist, Homophobic, Misogynistic, Transphobic, Ableist, Zionistic, MAGA, Aligns with being a TERF, Supports ICE, Supports AI slop or is just generally bigoted in their personal beliefs. 
     
-<h6> •  Anyone who indulges in any sort of zoo, incest, r*pe, l*li or sh*ta content in any capacity. Yes, this also includes fictional scenarios. We refuse to sit and debate this bullet point with you. You're gross and we don't want to befriend you.  
+<h6> •  Anyone who indulges in any sort of zoo, incest, r*pe, pedo / loli / shota content in any capacity. Yes, this also includes fictional scenarios or ships. We refuse to sit and debate this bullet point with you. You're gross and we don't want to befriend you.  
   
 <h6> •  Anyone under the age of 18; we don't enjoy talking to or being near minors who sneak onto the 18+ server. Go back to Safe Server where you belong.
 
