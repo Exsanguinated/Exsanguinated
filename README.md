@@ -23,7 +23,7 @@
 
 <h6> •  If you plan on being weird to us. This includes people who run up to try to roleplay or befriend us based on our introjects. It's super uncomfortable for everyone involved. Introject =/= your favorite character, even if they act similar.
 
-  <h6> •  Anyone who is Racist, Homophobic, Misogynistic, Transphobic, Ableist, Zionistic, MAGA, A TERF, Supports ICE, Supports AI slop or is just generally bigoted in their personal beliefs. 
+  <h6> •  Anyone who is Racist, Homophobic, Misogynistic, Transphobic, Ableist, Zionistic, MAGA, Aligns with being a TERF, Supports ICE, Supports AI slop or is just generally bigoted in their personal beliefs. 
     
 <h6> •  Anyone who indulges in any sort of zoo, incest, r*pe, l*li or sh*ta content in any capacity. Yes, this also includes fictional scenarios. We refuse to sit and debate this bullet point with you. You're gross.  
   
